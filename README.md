@@ -2,3 +2,4 @@
 i am a girl
 i live in badagry
  i am a yoruba girl
+i love amala
